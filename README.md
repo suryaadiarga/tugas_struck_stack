@@ -1,1 +1,0 @@
-# tugas_struck_stack
